@@ -9,3 +9,5 @@ It is fully inspired by this [post](https://redd.it/4j39bz) from [/r/mildlyinter
 Bonus from /u/_as_you_wish_
 
 ![schema](http://i.imgur.com/1JTlC2J.jpg)
+
+And if you are not a coffee person, you may like [this video](https://www.youtube.com/watch?v=FBI6RImkBho).
